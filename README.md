@@ -128,3 +128,22 @@ curated wine list and cocktails made from local and organic spirits.
   Valley) to Woodberry; exit station to the north at Union; make a
   left and continue up Clipper 1 block; make a left on Clipper Park;
   30 meters on your Right
+
+### Faidley Seafood
+
+http://www.faidleyscrabcakes.com/
+
+absolutely a must visit for lunch if you like 
+walking distance from the hotel - in Lexington Market
+
+EMAIL ADDRESS: faidleysseafood@gmail.com
+
+TELEPHONE: (410) 727-4898
+
+FOR FRESH FISH AND CRABS:  (410) 752-6461
+
+FAX: (410) 837-6495
+
+PLEASE USE OUR ENTRANCE AT:
+203 North Paca St
+Baltimore, MD 21201
