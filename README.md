@@ -22,13 +22,13 @@ A decent carft beer list can be found here as well.
 At night, live music is a hit here. Except Wednesday nights, where,
 yes, you will find a Mario Kart tournament.
 
-133 W. North Ave
-+1 410 545-0444
+ - 133 W. North Ave
+ - +1 410 545-0444
 
 #### inner harbor
 
-30 Market Place
-+1 410 962-5566
+ - 30 Market Place
+ - +1 410 962-5566
 
 ## beer
 
@@ -41,9 +41,9 @@ superb. The portions are relatively small, but the food is exceedingly
 high quality and not as expensive as other restaurants of interest to
 the "I must Instagram all of my meals" crowd.
 
-1106 North Charles Street
-+1 410 547-6925
-info@thebrewersart.com
+ - 1106 North Charles Street
+ - +1 410 547-6925
+- info@thebrewersart.com
 
 **From the Inner Harbor:** MTA Light Rail Northbound to Penn Station;
   walk 3.5 blocks South on Charles Street
@@ -52,7 +52,7 @@ info@thebrewersart.com
 
 http://www.prattstreetalehouse.com
 
-201 W Pratt St
+ - 201 W Pratt St
 
 Sports pub with its own brews, and a prime location across the street
 from the convention center. Great for a quick lunch of one or more
@@ -67,9 +67,9 @@ pints.
 
 http://woodberrykitchen.com
 
-2010 Clipper Park Road, No. 126
-+1 410 464-8000
-askus@woodberrykitchen.com
+ - 2010 Clipper Park Road, No. 126
+ - +1 410 464-8000
+ - askus@woodberrykitchen.com
 
 **Reservations almost certainly required.** They accept OpenTable.
 
