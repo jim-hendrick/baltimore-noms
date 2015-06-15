@@ -15,7 +15,7 @@ neighborhood, and an expansion in the Inner Harbor. Their coal-fired,
 square pizzas have more options than you likely can
 imagine. Additionally, apparently their risotto is to die for.
 
-A decent carft beer list can be found here as well.
+A decent craft beer list can be found here as well.
 
 #### station north
 
