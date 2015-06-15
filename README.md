@@ -10,7 +10,7 @@ alternatives.
 
 http://www.nicksoysterbar.com
 
-Known for it's happy hours full of delicious oysters.
+Known for its happy hours full of delicious oysters.
 
  - 1065 S. Charles St., inside Cross Street Market
  - +1 410 685-2020
