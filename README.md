@@ -25,6 +25,8 @@ yes, you will find a Mario Kart tournament.
  - 133 W. North Ave
  - +1 410 545-0444
 
+**From the Inner Harbor:** MTA Light Rail Northbound to North Avenue, and walk east over the North Avenue bridge. It's on the opposite corner once you cross the bridge.
+
 #### inner harbor
 
  - 30 Market Place
