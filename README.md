@@ -53,7 +53,7 @@ yes, you will find a Mario Kart tournament.
  - 30 Market Place
  - +1 410 962-5566
 
-## beer
+## beer/pub
 
 ### Brewer's Art
 
@@ -84,6 +84,29 @@ pints.
 
 **From the Inner Harbor:** Uh, it's on Pratt Street, just east of, and
   across the street from, the Light Rail.
+
+### Sláinte
+
+http://www.slaintepub.com/
+
+ - 1700 Thames Street
+ - +1 410 563-6600
+
+Pub that serves a pretty convincing Irish breakfast, and has soccer on
+the TVs as much as humanly possible.
+
+#### Hours
+ + Daily 0700–0200
+ + Breakfast
+   + Monday-Friday 0700-1100
+   + Saturday-Sunday 0700-1300
+ + Happy Hour
+   + Monday-Friday 1600-1900
+
+**From the Inner Harbor:** Take the Baltimore Water Taxi
+  (http://www.baltimorewatertaxi.com/) Red Route from Harborplace
+  (near Pratt & Light) to Fells Point. The pub is right across the
+  street from the ferry landing.
 
 ## foodie worthy
 
