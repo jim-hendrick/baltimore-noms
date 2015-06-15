@@ -8,6 +8,8 @@ alternatives.
 
 ### nick's oyster bar
 
+http://www.nicksoysterbar.com
+
 Known for it's happy hours full of delicious oysters.
 
  - 1065 S. Charles St., inside Cross Street Market
