@@ -4,6 +4,27 @@ Since certain conferences and training vendors (we won't name names)
 suggest only the most meager of food options, here is a list of
 alternatives.
 
+## seafood
+
+### nick's oyster bar
+
+http://www.nicksoysterbar.com
+
+Known for its happy hours full of delicious oysters.
+
+ - 1065 S. Charles St., inside Cross Street Market
+ - +1 410 685-2020
+ - info@nicksoysterbar.com
+ 
+#### Hours
+
+ - Sunday-Thursday, 1100-1900
+ - Friday, 1100-2200
+ - Saturday, 1100-2100
+
+**From the Inner Harbor:** Cross Street is 12 blocks South of Pratt
+  Street. The market is on the corner of Cross and Charles.
+
 ## pizza
 
 ### joe squared
