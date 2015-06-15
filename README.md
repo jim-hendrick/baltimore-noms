@@ -43,7 +43,7 @@ the "I must Instagram all of my meals" crowd.
 
  - 1106 North Charles Street
  - +1 410 547-6925
-- info@thebrewersart.com
+ - info@thebrewersart.com
 
 **From the Inner Harbor:** MTA Light Rail Northbound to Penn Station;
   walk 3.5 blocks South on Charles Street
@@ -52,8 +52,9 @@ the "I must Instagram all of my meals" crowd.
 
 http://www.prattstreetalehouse.com
 
- - 201 W Pratt St
-
+ - 206 W. Pratt St
+ - +1 410 244-8900
+ 
 Sports pub with its own brews, and a prime location across the street
 from the convention center. Great for a quick lunch of one or more
 pints.
